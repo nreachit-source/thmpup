@@ -1,6 +1,13 @@
-====================================
-   NEED A KEY TO USE THIS TOOL?
-
-   Buy a key from @BYTEOWNER
-          on Telegram
-====================================
+################################################################
+#                                                              #
+#                        BYTE TOOL                             #
+#                                                              #
+#                 LICENSE KEY REQUIRED                         #
+#                                                              #
+#              To purchase a license key:                      #
+#                                                              #
+#                    Telegram: @BYTEOWNER                      #
+#                                                              #
+#               Thank you for your support.                    #
+#                                                              #
+################################################################
