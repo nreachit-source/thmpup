@@ -1,5 +1,7 @@
-==================================================
-          THIS TOOL REQUIRES A KEY
-
-     Buy a key from @BYTEOWNER on Telegram
-==================================================
++----------------------------------------------+
+|                                              |
+|        THIS TOOL REQUIRES A KEY              |
+|                                              |
+|   Buy a key from @BYTEOWNER on Telegram      |
+|                                              |
++----------------------------------------------+
