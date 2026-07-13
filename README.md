@@ -1,13 +1,5 @@
-################################################################
-#                                                              #
-#                        BYTE TOOL                             #
-#                                                              #
-#                 LICENSE KEY REQUIRED                         #
-#                                                              #
-#              To purchase a license key:                      #
-#                                                              #
-#                    Telegram: @BYTEOWNER                      #
-#                                                              #
-#               Thank you for your support.                    #
-#                                                              #
-################################################################
+==================================================
+          THIS TOOL REQUIRES A KEY
+
+     Buy a key from @BYTEOWNER on Telegram
+==================================================
