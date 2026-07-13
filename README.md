@@ -1,73 +1,73 @@
-╔══════════════════════════════════════════════════════════════════════╗
-║   ██████╗ ██╗   ██╗██╗   ██╗    ██╗  ██╗███████╗██╗   ██╗           ║
-║   ██╔══██╗██║   ██║╚██╗ ██╔╝    ██║ ██╔╝██╔════╝╚██╗ ██╔╝           ║
-║   ██████╔╝██║   ██║ ╚████╔╝     █████╔╝ █████╗   ╚████╔╝            ║
-║   ██╔══██╗██║   ██║  ╚██╔╝      ██╔═██╗ ██╔══╝    ╚██╔╝             ║
-║   ██████╔╝╚██████╔╝   ██║       ██║  ██╗███████╗   ██║             ║
-║   ╚═════╝  ╚═════╝    ╚═╝       ╚═╝  ╚═╝╚══════╝   ╚═╝             ║
-╚══════════════════════════════════════════════════════════════════════╝
+######################################################################
+#                                                                    #
+#   BBBB   U   U  Y   Y      TTTTT  H   H  EEEEE      K   K  EEEEE    #
+#   B   B  U   U   Y Y         T    H   H  E          K  K   E        #
+#   BBBB   U   U    Y          T    HHHHH  EEEE       KKK    EEEE     #
+#   B   B  U   U    Y          T    H   H  E          K  K   E        #
+#   BBBB    UUU     Y          T    H   H  EEEEE      K   K  EEEEE    #
+#                                                                    #
+######################################################################
 
-                           .-----------------------.
-                          /   BUY THE KEY NOW!    \
-                         /_________________________\
-                               ||          ||
-                            ___||__________||___
-                           /____________________\
-                           |  CONTRACT / CONTACT |
-                           |    @byteowner       |
-                           |_____________________|
+                        .-------------------.
+                       /   BUY THE KEY!    \
+                      /_____________________\
+                             ||      ||
+                          ___||______||___
+                         /________________\
+                         |                |
+                         |   @byteowner   |
+                         |________________|
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+======================================================================
 
-🇺🇸 English
-► BUY THE KEY
-► CONTACT: @byteowner
+ENGLISH
+BUY THE KEY
+CONTACT: @byteowner
 
-🇪🇸 Español
-► COMPRA LA LLAVE
-► CONTACTO: @byteowner
+SPANISH
+COMPRA LA LLAVE
+CONTACTO: @byteowner
 
-🇫🇷 Français
-► ACHETEZ LA CLÉ
-► CONTACT : @byteowner
+FRENCH
+ACHETEZ LA CLE
+CONTACT: @byteowner
 
-🇩🇪 Deutsch
-► KAUFE DEN SCHLÜSSEL
-► KONTAKT: @byteowner
+GERMAN
+KAUFE DEN SCHLUESSEL
+KONTAKT: @byteowner
 
-🇮🇹 Italiano
-► ACQUISTA LA CHIAVE
-► CONTATTO: @byteowner
+ITALIAN
+ACQUISTA LA CHIAVE
+CONTATTO: @byteowner
 
-🇵🇹 Português
-► COMPRE A CHAVE
-► CONTATO: @byteowner
+PORTUGUESE
+COMPRE A CHAVE
+CONTATO: @byteowner
 
-🇷🇺 Русский
-► КУПИТЕ КЛЮЧ
-► КОНТАКТ: @byteowner
+RUSSIAN
+KUPITE KLYUCH
+KONTAKT: @byteowner
 
-🇹🇷 Türkçe
-► ANAHTARI SATIN AL
-► İLETİŞİM: @byteowner
+TURKISH
+ANAHTARI SATIN AL
+ILETISIM: @byteowner
 
-🇸🇦 العربية
-► اشترِ المفتاح
-► التواصل: @byteowner
+ARABIC
+ISHTARI AL MIFTAH
+CONTACT: @byteowner
 
-🇯🇵 日本語
-► キーを購入してください
-► 連絡先: @byteowner
+JAPANESE
+KI WO KOUNYUU
+CONTACT: @byteowner
 
-🇰🇷 한국어
-► 키를 구매하세요
-► 연락처: @byteowner
+KOREAN
+KI GUIP
+CONTACT: @byteowner
 
-🇨🇳 中文
-► 购买密钥
-► 联系方式: @byteowner
+CHINESE
+GOU MAI MI YAO
+CONTACT: @byteowner
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
-               >>>>>>>>>>>>  BUY THE KEY  <<<<<<<<<<<<
-                    CONTACT / CONTRACT: @byteowner
+======================================================================
+                 BUY THE KEY - CONTACT @byteowner
+======================================================================
