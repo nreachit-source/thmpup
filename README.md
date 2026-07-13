@@ -1,17 +1,73 @@
-kkkkkksadkll;dkfldkjg
-fds'gmlkfdsgj;
-fd;gjfdlkgjfd
-g;df;ljgkl;df
-dfklhjfkdljglkasd
-safl;jhksdajfhjlsad;f
-;sadl;fjhksdaf
-sadlksdljfkhkjas;l'ld;
-ASKJHSBFKAL;'
-a;ldkshjblaj;d'
-1;kljdal'
-;DFJKVBAk'l
-;'d;'flhkJKL
-KJHHAD'kj
-lkfkjhdgk'sj
-fjlh'akdsJFHK
-LDK;LKFJHK'djfhkdlk;lfjbs;aDNM
+╔══════════════════════════════════════════════════════════════════════╗
+║   ██████╗ ██╗   ██╗██╗   ██╗    ██╗  ██╗███████╗██╗   ██╗           ║
+║   ██╔══██╗██║   ██║╚██╗ ██╔╝    ██║ ██╔╝██╔════╝╚██╗ ██╔╝           ║
+║   ██████╔╝██║   ██║ ╚████╔╝     █████╔╝ █████╗   ╚████╔╝            ║
+║   ██╔══██╗██║   ██║  ╚██╔╝      ██╔═██╗ ██╔══╝    ╚██╔╝             ║
+║   ██████╔╝╚██████╔╝   ██║       ██║  ██╗███████╗   ██║             ║
+║   ╚═════╝  ╚═════╝    ╚═╝       ╚═╝  ╚═╝╚══════╝   ╚═╝             ║
+╚══════════════════════════════════════════════════════════════════════╝
+
+                           .-----------------------.
+                          /   BUY THE KEY NOW!    \
+                         /_________________________\
+                               ||          ||
+                            ___||__________||___
+                           /____________________\
+                           |  CONTRACT / CONTACT |
+                           |    @byteowner       |
+                           |_____________________|
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+🇺🇸 English
+► BUY THE KEY
+► CONTACT: @byteowner
+
+🇪🇸 Español
+► COMPRA LA LLAVE
+► CONTACTO: @byteowner
+
+🇫🇷 Français
+► ACHETEZ LA CLÉ
+► CONTACT : @byteowner
+
+🇩🇪 Deutsch
+► KAUFE DEN SCHLÜSSEL
+► KONTAKT: @byteowner
+
+🇮🇹 Italiano
+► ACQUISTA LA CHIAVE
+► CONTATTO: @byteowner
+
+🇵🇹 Português
+► COMPRE A CHAVE
+► CONTATO: @byteowner
+
+🇷🇺 Русский
+► КУПИТЕ КЛЮЧ
+► КОНТАКТ: @byteowner
+
+🇹🇷 Türkçe
+► ANAHTARI SATIN AL
+► İLETİŞİM: @byteowner
+
+🇸🇦 العربية
+► اشترِ المفتاح
+► التواصل: @byteowner
+
+🇯🇵 日本語
+► キーを購入してください
+► 連絡先: @byteowner
+
+🇰🇷 한국어
+► 키를 구매하세요
+► 연락처: @byteowner
+
+🇨🇳 中文
+► 购买密钥
+► 联系方式: @byteowner
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+               >>>>>>>>>>>>  BUY THE KEY  <<<<<<<<<<<<
+                    CONTACT / CONTRACT: @byteowner
