@@ -1,3 +1,3 @@
 THIS TOOL REQUIRES A KEY
-Buy a key from @BYTEOWNER on Telegram
+Buy a key from  on Telegram
 
